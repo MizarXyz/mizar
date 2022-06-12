@@ -1,0 +1,2 @@
+# mizar
+No regret life
